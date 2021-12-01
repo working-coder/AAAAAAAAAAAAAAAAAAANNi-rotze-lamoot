@@ -43,3 +43,8 @@ has finally gone insane and is asking google assistant to cut him into pieces.
 we still did not start. its been two hours.
 how did we get here, i used to be so happy 2 hours ago, and here i am
 sitting alone. summorizing this nothingness. waiting for idan to come back from his food break
+
+
+# 15 : 08
+
+almost done with setting up everything
